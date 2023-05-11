@@ -1,1 +1,0 @@
-# Different-Types-Of-Training
